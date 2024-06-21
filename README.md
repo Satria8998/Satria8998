@@ -1,1 +1,1 @@
-# BOT PUSH KONTAK
+# bot by satria
